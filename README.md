@@ -9,7 +9,7 @@
 
 $$\color{#8BCF2A}{𝗛𝗲𝗹𝗹𝗼!}$$
 
-I go by **𝗡𝗼𝘁𝗲** or **𝗘𝗹𝘆𝗶𝘀**!
+I go by **Xtreme** or **𝗘𝗹𝘆𝗶𝘀**!
 
 <br>
 
